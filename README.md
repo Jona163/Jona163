@@ -1,7 +1,7 @@
 ![Jona163](https://drive.google.com/uc?export=view&id=1PfhDUW3uQL6rRpEOThn1uGSpFl-QrRIi)
 
 # 💫 About Me:
-¡Hola! Soy Jonathan Hernández, un apasionado programador mexicano de 21 años, actualmente cursando el 7° semestre de Ingeniería en Sistemas Computacionales en el Tecnológico de Estudios Superiores de Jilotepec. Con una insaciable sed de aprendizaje, me esfuerzo por destacar en cada proyecto en el que participo, siempre buscando soluciones innovadoras y eficientes.<br><br>Mi objetivo es crecer profesionalmente, adquiriendo nuevas habilidades y aplicando mis conocimientos en proyectos que realmente marquen la diferencia. Estoy ansioso por colaborar en iniciativas que desafíen mis capacidades y contribuyan a mi desarrollo como ingeniero.<br><br>Si buscas a alguien con determinación, creatividad y un gran deseo de aprender, ¡soy la persona indicada!
+¡Hola! Soy Jonathan Hernández, un apasionado programador mexicano de 22 años, actualmente egresado de Ingeniería en Sistemas Computacionales en el Tecnológico de Estudios Superiores de Jilotepec. Con una insaciable sed de aprendizaje, me esfuerzo por destacar en cada proyecto en el que participo, siempre buscando soluciones innovadoras y eficientes.<br><br>Mi objetivo es crecer profesionalmente, adquiriendo nuevas habilidades y aplicando mis conocimientos en proyectos que realmente marquen la diferencia. Estoy ansioso por colaborar en iniciativas que desafíen mis capacidades y contribuyan a mi desarrollo como ingeniero.<br><br>Si buscas a alguien con determinación, creatividad y un gran deseo de aprender, ¡soy la persona indicada!
 
 
 ## 🌐 Socials:
